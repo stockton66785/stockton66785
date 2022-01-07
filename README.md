@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+![IMG_9390](https://user-images.githubusercontent.com/97294134/148550976-a9752c66-8288-4d3d-9d20-54bcc6dd8ee3.jpg)
+
+- 🖤💚🤍 I’m currently working on **Beforeget Main PM** 
+
+
+
+
+
+
 <!--
 **stockton66785/stockton66785** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
